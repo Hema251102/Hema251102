@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rtpichaimani25@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rBcZfINkL_l8FxMIu5zXV82g-7RwFklh/view?usp=drivesdk](https://drive.google.com/file/d/1rBcZfINkL_l8FxMIu5zXV82g-7RwFklh/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/10JyomDtfQTtf6B8vrDQsZHB52kUmF-aV/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
